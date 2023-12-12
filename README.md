@@ -28,5 +28,5 @@ You can click the Preview link to take a look at your changes.
 ![](https://64.media.tumblr.com/8eefa88953b55f47124d039097b44aa6/62e81ddceab68145-66/s100x200/5c4e2a0cc88ea3b8cf6cf2ba0f9899f22f229b13.gifv) 
 ![](https://64.media.tumblr.com/d200cdb0882ae2918e80f07ed2c020c6/62e81ddceab68145-42/s100x200/0179ff44ddbf88c46403cca87a86c332259e6c93.pnj) 
 ![](https://64.media.tumblr.com/e2687a6f753fed9973fee484f1d9e485/5e3c95ced90a9650-15/s100x200/3294002c5bec8f3bf7865cefa941dbb7b4364a9a.gifv) 
-![](https://i.pinimg.com/originals/0b/39/5e/0b395ec9f6d66c9e4cf9d4a0bd5aa55e.gif-15/s100x200/3294002c5bec8f3bf7865cefa941dbb7b4364a9a.) 
+
 ![](https://i.pinimg.com/originals/fc/01/06/fc0106026cb93e313abee670aba1133a.gif)
