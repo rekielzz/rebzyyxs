@@ -8,7 +8,6 @@ You can click the Preview link to take a look at your changes.
 ![](https://64.media.tumblr.com/77e3ff09ed63c44405482780721ba9de/caa86dc6f92c4e03-ad/s100x200/8b46a0ab5a328dd4867e8479bba5a24a2ee858d8.pnj) 
 ![](https://64.media.tumblr.com/a77414c7b4eff83c9d50658c66354192/9af10e6ef50ca95b-d4/s100x200/9914e773a4733fea7b456954bf4230d8cb4b9064.gifv) 
 ![](https://64.media.tumblr.com/c39baa69b4ad3b82fef2b8e10a5c4fc1/07e80bd723d3bf82-2a/s100x200/f160dcbe8cd3776f7ad86bb5b430d72347b6d452.pnj) 
-![](https://64.media.tumblr.com/9245a15dad34f3b6bd5179908407ec73/e16d9c3fd8438e13-af/s100x200/ccf910778204ed13b524dc4db741a009fb08e47c.jpg)
 ![](https://64.media.tumblr.com/12da7add0f49f01e1844e5301c5f7357/dde60c1e9dfffeeb-90/s100x200/38963e037a22d18626685aafe10d07f6756f22d5.pnj) 
 ![](https://64.media.tumblr.com/a188df5c8646719d930518241877f180/dde60c1e9dfffeeb-67/s100x200/a8d8cf4359165dd10bf36255838af7a87e47d15d.jpg) 
 ![](https://64.media.tumblr.com/2255b4830abed444fc88f21b1b262edc/884eea48d188fc7b-24/s100x200/107402511a16b0ad9848910190c9e8bd6d77871c.pnj) 
